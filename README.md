@@ -1,0 +1,1 @@
+# Projekts_Arturs_Trubicins
